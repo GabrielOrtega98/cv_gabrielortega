@@ -1,2 +1,2 @@
-# Curriculo Gabriel Ortega
+# Currículo Pessoal Gabriel Ortega 
  
